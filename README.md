@@ -7,4 +7,4 @@
 🛠️ Working on small learning projects/home labs 
 
  
-🚀 Always learning
+🚀 Learning new things
